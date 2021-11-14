@@ -1,4 +1,4 @@
-Please add me as a Agent Developer [Published] on Discord, my username is flaupol#4435.
+Please add me as a Agent Developer [Published] on Discord, my username is Ivan_kuvanets#1001
 # Flash Loan Attack Agent
 
 ## Description
